@@ -1,0 +1,1 @@
+- 👋 Hi, I'm 516. Developer and interested in computer science and yes, I think this is enough.
